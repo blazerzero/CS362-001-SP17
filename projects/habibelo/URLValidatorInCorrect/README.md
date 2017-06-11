@@ -1,3 +1,4 @@
-Final Project:
+Omeed Habibelahian
+Alex Pierce
 
-Final Project PART-B: 6.12.2017 (first day of the final week)
+This is our Final Project submission!
